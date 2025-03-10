@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with ...my crush
 - 📫 How to reach me ...whysovishaln instagram
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...is a havefun
+- ⚡ Fun fact: ...is a having fun
 
 <!---
 Vishal6667/Vishal6667 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
