@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Vishal6667
 - 👀 I’m interested in ...coding
 - 🌱 I’m currently learning ...webdev
-- 💞️ I’m looking to collaborate on ...my crush
+- 💞️ I’m looking to collaborate with ...my crush
 - 📫 How to reach me ...whysovishaln instagram
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...is a havefun
